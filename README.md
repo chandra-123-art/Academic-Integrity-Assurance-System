@@ -1,1 +1,1 @@
-[Resume] (./Chandrapathi-Mekala-Resume.pdf)
+Chandrapathi-Mekala-Resume.pdf
